@@ -1,2 +1,3 @@
 name: Classics Club!
 markdown: kramdown
+permalink: /blog/:year/:month/:day/:title
