@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: posts
 title: Classics Club Now has a basic Theme
 ---
 <div class="blurb">
