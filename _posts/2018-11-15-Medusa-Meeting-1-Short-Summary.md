@@ -1,9 +1,8 @@
 ---
 layout: posts
-title: Medusa M1 Summary
+title: Medusa Heroes Short recap
 ---
 <div class="blurb">
-    <h1> Medusa Heroes Short recap </h1>
     <p> <ul> 
           <li> <b> Achilles </b> : shall overthrow Zeus prophecy, dunked in powerful water but not fully cuz then that would be infant murder </li>
           <li> <b> Medea </b> : Carrie Underwood Before He Cheats type of gal. Basically married and saved Jason's ass too many times and he was thirsty for younger girl. Obviously she's upset. </li>
