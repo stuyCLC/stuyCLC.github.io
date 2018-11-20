@@ -3,8 +3,7 @@ layout: posts
 title: Medusa Meeting # 2 Summary and Discussion
 ---
 <div class="blurb">
-    <p> Our mythology buff president Anj couldn't be here today so Momo and Meredith took over. Please message Anj if you have any questions
-    
+    <p> Our mythology buff president Anj couldn't be here today so Momo and Meredith took over. Please message Anj if you have any questions 
     <ul> 
           <li> <b> Odysseus: </b> the long annoying story
                 <li> <i> Ithaca </i> Odysseus lives here with his wife, Penelope (a 50 year old beauty --think of her as a cougar). </li>
@@ -32,7 +31,7 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <li> <i> Land of the Gorgons</i> He kills Medusa and takes her head as a tropy. Escapes Gorgons with invis cap. </li>
           Side note: Medusa had beautiful hair and was RAPED by Posiedon cuz he, like his bro, needa smash, in Athena's temple. Can't punish Posiedon so punish the rape victim. K 
                 <li> <i> Ethiopia </i> Pit stop gas station wife: He rescues Andromeda who is a sacrifice to the water monster that will threaten the island. Uses the head to turn her husband and the monster to stone. Basically anyone that pisses him off gets stoned (literally). Also stoned king that wanted to insert dick in his mom</li>
-                <li> <i> Larissa </li> Ends up at Larissa at some funeral games and decides to throw discs (ULTIMATE FRISBEE YALL). One of them kills his Grandpa in the crowd nani </li>
+                <li> <i> Larissa </i> Ends up at Larissa at some funeral games and decides to throw discs (ULTIMATE FRISBEE YALL). One of them kills his Grandpa in the crowd nani </li>
           Side Note 2: Posiedon raping Medusa gives birth to Pegasus (a slave to the people who killed your mom) through her chopped neck... traumatizing for a baby
          </li>
     </ul>
