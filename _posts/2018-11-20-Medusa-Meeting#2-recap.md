@@ -14,7 +14,7 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <ol> <b><i> Land of the Cyclops</i></b>  a few get eaten by Polyphemus. Think "I am nobody!" and cyclops. Odysseus screws up and reveals his name and now Posiedon is making his life hell. (Hubris count 2, Karma count 1) </ol>
                 <ol> <b><i> Aeolia </i></b> recieve help on sailing from Aeolus, the master of winds, recieves bag. Told not to open bag until required for wind. Opens because there MUST be gold in there. (Hubris 3 Karma 2)  </ol>
                 <ol> <b><i> Laestrygonians </i></b> end up with the cannibalistic giants, his ship is the one that makes it through. </ol> <br>
-         Notice how all of the problems happen because no one listens and angers the gods.  /n
+         Notice how all of the problems happen because no one listens and angers the gods.  
                 <ol> <b><i> Aeaea </i></b> First off, you can tell dem gods pissed naming the land because NO CONSONANTS. This is where <i> Circe </i> lives and a good chunk of his remaining crew get turned into pigs. She's a thot for Odysseus though and let's him go with a warning about the Sirens. (Hubris 4 Karma 3) </ol>
                 <ol> <b><i> Underworld </i></b> Odysseus does a sacrifice to get all the gossip (since gossip travels fast in the Underworld and meet his old dead buddies (who he couldn't care less about because they died in battle) and learns about all the 18-25 young suitors wanting to insert their dicks into Penelope. Oh and he has a son. cool </ol>
                 <ol> <b><i> Sirens, then Scylla and Charybdis </i></b> Basically his whole crew almost ded </ol>
@@ -30,7 +30,7 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <ol> <b><i> Land of the Graeae </i></b> The Graeae are the three sisters with one eyeball and after taking their eyeball (oh shit we blind) as ransom they tell them where the Hesperides are. </ol>
                 <ol> <b><i> Land of the Hesperides</i></b> The Hesperides tend Hera's orchard and give him info and a bookbag to hold Medusa's head. From the gods he recieves invis. cap, winged shoes, shield and sword. </ol>
                 <ol <b><i> Land of the Gorgons</i></b> He kills Medusa and takes her head as a tropy. Escapes Gorgons with invis cap. </ol> <br>
-          <b>Side note:</b> Medusa had beautiful hair and was RAPED by Posiedon cuz he, like his bro, needa smash, in Athena's temple. Can't punish Posiedon so punish the rape victim. K  /n
+          <b>Side note:</b> Medusa had beautiful hair and was RAPED by Posiedon cuz he, like his bro, needa smash, in Athena's temple. Can't punish Posiedon so punish the rape victim. K  
                 <br><ol><b> <i> Ethiopia </i></b> Pit stop gas station wife: He rescues Andromeda who is a sacrifice to the water monster that will threaten the island. Uses the head to turn her husband and the monster to stone. Basically anyone that pisses him off gets stoned (literally). Also stoned king that wanted to insert dick in his mom</ol>
                 <ol> <b><i> Larissa </i></b> Ends up at Larissa at some funeral games and decides to throw discs (ULTIMATE FRISBEE YALL). One of them kills his Grandpa in the crowd nani </ol> <br>
           <b>Side Note 2:</b> Posiedon raping Medusa gives birth to Pegasus (a slave to the people who killed your mom) through her chopped neck... traumatizing for a baby
