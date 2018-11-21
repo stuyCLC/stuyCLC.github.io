@@ -1,6 +1,6 @@
 ---
 layout: posts
-title: Medusa Meeting # 2 Summary and Discussion
+title: Medusa Meeting 2: Recap
 ---
 <div class="blurb">
     <p> Our mythology buff president Anj couldn't be here today so Momo and Meredith took over. Please message Anj if you have any questions. Prepare for imformation DUMP. <br>
