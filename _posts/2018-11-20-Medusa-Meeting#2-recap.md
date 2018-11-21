@@ -3,7 +3,7 @@ layout: posts
 title: Medusa Meeting # 2 Summary and Discussion
 ---
 <div class="blurb">
-    <p> Our mythology buff president Anj couldn't be here today so Momo and Meredith took over. Please message Anj if you have any questions 
+    <p> Our mythology buff president Anj couldn't be here today so Momo and Meredith took over. Please message Anj if you have any questions. Prepare for imformation DUMP. <br>
     <ul> 
           <li> <b> Odysseus: </b> the long annoying story
                 <ol> <b><i> Ithaca </i></b> Odysseus lives here with his wife, Penelope (a 50 year old beauty --think of her as a cougar). </ol>
