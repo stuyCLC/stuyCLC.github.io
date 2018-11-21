@@ -13,16 +13,17 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <ol> <b><i> Land of the Lotus Eaters </i></b> by accident, a portion of his crew get stuck forever </ol>
                 <ol> <b><i> Land of the Cyclops</i></b>  a few get eaten by Polyphemus. Think "I am nobody!" and cyclops. Odysseus screws up and reveals his name and now Posiedon is making his life hell. (Hubris count 2, Karma count 1) </ol>
                 <ol> <b><i> Aeolia </i></b> recieve help on sailing from Aeolus, the master of winds, recieves bag. Told not to open bag until required for wind. Opens because there MUST be gold in there. (Hubris 3 Karma 2)  </ol>
-                <ol> <b><i> Laestrygonians </i></b> end up with the cannibalistic giants, his ship is the one that makes it through. </ol> <br>
-         Notice how all of the problems happen because no one listens and angers the gods.  
+                <ol> <b><i> Laestrygonians </i></b> end up with the cannibalistic giants, his ship is the one that makes it through. </ol>
                 <ol> <b><i> Aeaea </i></b> First off, you can tell dem gods pissed naming the land because NO CONSONANTS. This is where <i> Circe </i> lives and a good chunk of his remaining crew get turned into pigs. She's a thot for Odysseus though and let's him go with a warning about the Sirens. (Hubris 4 Karma 3) </ol>
                 <ol> <b><i> Underworld </i></b> Odysseus does a sacrifice to get all the gossip (since gossip travels fast in the Underworld and meet his old dead buddies (who he couldn't care less about because they died in battle) and learns about all the 18-25 young suitors wanting to insert their dicks into Penelope. Oh and he has a son. cool </ol>
                 <ol> <b><i> Sirens, then Scylla and Charybdis </i></b> Basically his whole crew almost ded </ol>
                 <ol> <b><i> Thrinacia </i></b> Sun butt Apollo/Helios mlp cows that you shouldn't eat but they do eat. Gods angry and screw his sailing after again. Everybody ded. (Hubris 5 Karma 4) </ol>
                 <ol> <b><i> Ogygia </i></b> imprisoned and has sex with Calypso for another 7 years. Athena and Hermes pity him and help him get out. Unfaithful af </ol>
                 <ol> <b><i> Scheria </i></b> seduces a 12-something year old princess and gets oiled up to meet her parents the king and queen. (PEDO ALERT). Goes the Fresh Prince of Bel Air about his life and has to prove he's the best. (Hubris 6 Karma 4) </ol>
-                <ol> <b><i> Ithaca </i></b> Gets back home under Athena's juju old man guise, shoots arrow through axes to prove he da best, slaughter every single suitor with his son. K. </ol>
+                <ol> <b><i> Ithaca </i></b> Gets back home under Athena's juju old man guise, shoots arrow through axes to prove he da best, slaughter every single suitor with his son. K. </ol> 
          </li>
+        <br>
+         Notice how all of the problems happen because no one listens and angers the gods.  
         <br>
          <li> <b> Perseus: </b> the Medusa story
                 <ol> <b><i> Argos </i></b> Backstory: Grandpa hears prophecy that his grandson will kill him. Locks Danae (money) in a box but Zeus wanna smash so golden rain impregnation. </ol>
