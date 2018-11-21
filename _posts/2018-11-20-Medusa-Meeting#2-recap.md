@@ -20,10 +20,9 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <ol> <b><i> Thrinacia </i></b> Sun butt Apollo/Helios mlp cows that you shouldn't eat but they do eat. Gods angry and screw his sailing after again. Everybody ded. (Hubris 5 Karma 4) </ol>
                 <ol> <b><i> Ogygia </i></b> imprisoned and has sex with Calypso for another 7 years. Athena and Hermes pity him and help him get out. Unfaithful af </ol>
                 <ol> <b><i> Scheria </i></b> seduces a 12-something year old princess and gets oiled up to meet her parents the king and queen. (PEDO ALERT). Goes the Fresh Prince of Bel Air about his life and has to prove he's the best. (Hubris 6 Karma 4) </ol>
-                <ol> <b><i> Ithaca </i></b> Gets back home under Athena's juju old man guise, shoots arrow through axes to prove he da best, slaughter every single suitor with his son. K. </ol> 
-         </li>
-        <br>
-         Notice how all of the problems happen because no one listens and angers the gods.  
+                <ol> <b><i> Ithaca </i></b> Gets back home under Athena's juju old man guise, shoots arrow through axes to prove he da best, slaughter every single suitor with his son. K. </ol> <br>
+         Notice how all of the problems happen because no one listens and angers the gods. 
+        </li> 
         <br>
          <li> <b> Perseus: </b> the Medusa story
                 <ol> <b><i> Argos </i></b> Backstory: Grandpa hears prophecy that his grandson will kill him. Locks Danae (money) in a box but Zeus wanna smash so golden rain impregnation. </ol>
