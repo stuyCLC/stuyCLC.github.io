@@ -15,7 +15,7 @@ title: Medusa Meeting # 2 Summary and Discussion
                 <ol> <b><i> Aeolia </i></b> recieve help on sailing from Aeolus, the master of winds, recieves bag. Told not to open bag until required for wind. Opens because there MUST be gold in there. (Hubris 3 Karma 2)  </ol>
                 <ol> <b><i> Laestrygonians </i></b> end up with the cannibalistic giants, his ship is the one that makes it through. </ol> <br>
          Notice how all of the problems happen because no one listens and angers the gods. 
-              
+       <br>
                 <ol> <b><i> Aeaea </i></b> First off, you can tell dem gods pissed naming the land because NO CONSONANTS. This is where <i> Circe </i> lives and a good chunk of his remaining crew get turned into pigs. She's a thot for Odysseus though and let's him go with a warning about the Sirens. (Hubris 4 Karma 3) </ol>
                 <ol> <b><i> Underworld </i></b> Odysseus does a sacrifice to get all the gossip (since gossip travels fast in the Underworld and meet his old dead buddies (who he couldn't care less about because they died in battle) and learns about all the 18-25 young suitors wanting to insert their dicks into Penelope. Oh and he has a son. cool </ol>
                 <ol> <b><i> Sirens, then Scylla and Charybdis </i></b> Basically his whole crew almost ded </ol>
