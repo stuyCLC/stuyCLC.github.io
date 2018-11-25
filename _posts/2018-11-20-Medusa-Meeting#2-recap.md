@@ -36,6 +36,7 @@ title: Medusa Meeting 2 Recap
           <b>Side Note 2:</b> Posiedon raping Medusa gives birth to Pegasus (a slave to the people who killed your mom) through her chopped neck... traumatizing for a baby
          </li>
     </ul>
+    <a href = "https://www.youtube.com/watch?v=bzFCbUC4c7s&list=PLDb22nlVXGgeoPb-HBWwzEeoAwDvckSrC&ab_channel=OverlySarcasticProductions"> Video Summary by OverlySarcasticProductions </a> 
   </p>
 </div>
         
