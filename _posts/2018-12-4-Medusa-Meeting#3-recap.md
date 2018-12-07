@@ -3,7 +3,7 @@ layout: posts
 title: Medusa Meeting 3 Recap
 ---
 <div class="blurb">
-<p> <i> Abstract </i> Heracles is greek because he is named after Hera (Zeus trying to appease his wife about another bastard child)
+<p> <i> Hercules vs Heracles? </i> Heracles is greek because he is named after Hera (Zeus trying to appease his wife about another bastard child)
     <ul> <b> Heracles </b>
     <li> <i> <b>Thebes: Birth </b> </i> Zeus wants to smash Alcmene (descendant of Perseus) so he disguises as her husband and copulates. Since she had sex with Zeus and her husband later that night, she gave birth to demigod Heracles, and twin brother Iphicles. Hera, pissed (why wouldn't she) forces the goddess of childbirth to cross her DAMN legs to prevent the twins from being born, but one of the servants of the goddess of childbirth manages to stop her legs from crossing by making her jump in fear, releasing the twins from their mom's wound. </li>
    <br> <b> <i> Why is he famous? (Tiryns, Mycenae) </i></b> Hera decides to screw with Heracles's mind making him kill his whole fam (wife and kids the whole shebang.) So he goes to the oracle, who under Hera's orders, tells him to go to the king (his cousin Eurystheus, who only became king because Hera trapped Heracles in the womb) to cleanse himself of his crimes, and was told to do 10 tasks. The backstory you never knew. <br>
