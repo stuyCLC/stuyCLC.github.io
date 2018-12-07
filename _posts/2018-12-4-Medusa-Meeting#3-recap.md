@@ -1,6 +1,6 @@
 ---
 layout: posts
-title: Medusa Meeting 2 Recap
+title: Medusa Meeting 3 Recap
 ---
 <div class="blurb">
 <p> <i> Abstract </i> Heracles is greek because he is named after Hera (Zeus trying to appease his wife about another bastard child)
