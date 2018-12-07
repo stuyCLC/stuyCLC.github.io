@@ -25,7 +25,7 @@ title: Medusa Meeting 3 Recap
     <br><li> <i><b> Mount Othea: Death </b> </i><br> Different wife, but they were crossing a river and a centaur ran off with his wife. Heracles shot him down with his arrows, and the centaur gave the wife his blood (now poisonous) if Heracles is ever unfaithful (under the guise of a love potion). Years later, Heracles does start getting cold feet (or that's what she thinks) so she makes him wear clothes that are stained with the blood, burning his mortal half away. Doesn't even attend his funeral smh. He becomes immortal and joins the gods. </li>
     </ul>
     <br>
-    By the way OverlySarcasticProductions did a video on <a href = "https://www.youtube.com/watch?v=M16jOVC5kpA&ab_channel=OverlySarcasticProductions"> Heracles </a> 
+    By the way OverlySarcasticProductions did a video on <a href = "https://www.youtube.com/watch?v=M16jOVC5kpA&ab_channel=OverlySarcasticProductions"> Heracles </a> Toodles!
   </p>
 </div>
         
