@@ -2,8 +2,8 @@
 layout: posts
 title: Medusa Finished- A Message from Anj and Momo
 ---
-<head> 
-<meta charset="UTF-8">
+<head>
+ <meta charset='utf-8'>
 </head>
 <div class="blurb">
   <p> <b>Momo:</b> so other than the test vioing us with friggin Helen of Troy (WHY) and Polycrustes (Again why wtf) and forgetting that Scheria was a place it wasn't so bad. Watch us get 60s though. It was fun teaching yalllll  &#1F493; <br><br>
