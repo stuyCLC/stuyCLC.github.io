@@ -3,7 +3,7 @@ layout: posts
 title: Medusa Finished- A Message from Anj and Momo
 ---
 <div class="blurb"> 
-<video width="640" height="360" autoplay loop controls controlsList="nodownload" webkitallowfullscreen mozallowfullscreen allowfullscreen poster="PATH-TO-STILL-IMAGE">
+<video width="640" height="360" loop controls controlsList="nodownload" webkitallowfullscreen mozallowfullscreen allowfullscreen poster="PATH-TO-STILL-IMAGE">
     <source src="https://www.youtube.com/watch?v=yErnuebA9Yo&ab_channel=Butwhyvideos" type="video/flv">
 </video>
   <p> <b>Momo:</b> so other than the test vioing us with friggin Helen of Troy (WHY) and Polycrustes (Again why wtf) and forgetting that Scheria was a place it wasn't so bad. Watch us get 60s though. It was fun teaching yalllll  💓 <br><br>
